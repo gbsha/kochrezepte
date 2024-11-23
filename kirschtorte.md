@@ -16,7 +16,7 @@
 4. Schokolade, Mehl, Kirschwasser zum Teig geben, ruehren.
 5. Eiweiss unterheben.
 6. Kuchenform mit Butter einfetten, Butter mit Paniermehl bedecken, loses Paniermehl herausfallenlassen.
-7. Bei mittlerer Hitze backen.
+7. Bei mittlerer Hitze backen, z.B. 25 Minuten 180&deg;C.
 
 ## Bosch Cookit
 1. Eiweiss: Zwillingsbesen, Drehzahl 5, 3:30min.
